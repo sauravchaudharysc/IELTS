@@ -7,3 +7,9 @@ It consists of four section in total of time 3 hours.
 - Writing (2 Task, 2 Questions, 60 Minutes)
 - Speaking (Face to Face Interview, 10-15 Minutes)
 
+### Things to Remember
+
+- Capitalization
+- Grammar
+- Spelling
+- Read Instruction Properly
